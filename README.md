@@ -6,8 +6,8 @@
 
 ## :eyes: Скриншоты
 
-![Загрузка](https://i.ibb.co/yNY0c0z/jhVhXZ0.png)
+![Загрузка](https://i.ibb.co/xHNKhbc/jhVhXZ0.webp)
 
-![Меню](https://i.ibb.co/8K89YZq/eVWXNnA.png)
+![Меню](https://i.ibb.co/7gVMzB4/eVWXNnA.webp)
 
 > Скоро будут еще скриншоты
